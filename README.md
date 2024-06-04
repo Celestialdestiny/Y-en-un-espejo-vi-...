@@ -1,4 +1,4 @@
-![descargar (4)](https://github.com/Celestialdestiny/Y-en-un-espejo-vi-.../assets/171634769/6bced8fd-34e3-45db-8abb-3558307ce593)
+Ⅻⅼ
 Y hoy la fui a visitar caminando entre lápidas
 Y me di cuenta que
 La vida aquí es muy rápida
